@@ -1,0 +1,1 @@
+![Screenshot 2023-03-23 at 13-13-49 6  Операционные системы lite — Тренировки по алгоритмам 3 0 от Яндекса — Дивизион B — Яндекс Контест](https://user-images.githubusercontent.com/88425424/227172297-2ce2dede-1e5b-493f-abb0-f3b765ea5fe8.png)
