@@ -1,0 +1,1 @@
+![Screenshot 2023-03-23 at 13-15-18 7  SNTP — Тренировки по алгоритмам 3 0 от Яндекса — Дивизион B — Яндекс Контест](https://user-images.githubusercontent.com/88425424/227172663-4ac3a3f6-7343-4a44-abc6-0f693957207f.png)
