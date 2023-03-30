@@ -1,0 +1,1 @@
+![Screenshot 2023-03-30 at 11-16-41 38  Блохи — Тренировки по алгоритмам 3 0 от Яндекса — Дивизион B — Яндекс Контест](https://user-images.githubusercontent.com/88425424/228773928-c08bd5ec-c9ef-4cdf-b5ee-595d3ecfff2a.png)
